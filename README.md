@@ -5,11 +5,11 @@ I am _Eduardo "duduw" Borges_. I have strong media and communication professiona
 
 ### 🌱 What do I do and What have I done? 
 
-- Working in that things.
+- Working in progress.
 
 
 ### ⚡ One line that describes me best? 
-An ambitious boy who loves to cook fries, day dream at nights and sometime codes too.😉😉
+Working in progress.
 
 ### 📫 How to reach me?
 - [Twitter](#) 
